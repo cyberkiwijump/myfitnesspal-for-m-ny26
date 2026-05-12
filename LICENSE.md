@@ -1,4 +1,4 @@
-# 
+# Enhance Splashtop for macOS with professional Splashtop for macOS Extension | end-to-end-encryption + performance-optimization, the #1 extension. Includes end-to-end-encryption
 
 
 
